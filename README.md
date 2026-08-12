@@ -1,1 +1,1 @@
-# inno-de-lab-aug-2026_-alexander_starovoitov
+# inno-de-lab-aug-2026_alexander_starovoitov
